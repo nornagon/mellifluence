@@ -1,4 +1,4 @@
-mellifluence, *adj.*
+mellifluence, *n.*
 that which flows as if with honey: sweetly and smoothly.
 
 like your web audio.
